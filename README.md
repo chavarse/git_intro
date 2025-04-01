@@ -1,1 +1,2 @@
 Sergio Chavarria
+chavarse@oregonstate.edu
